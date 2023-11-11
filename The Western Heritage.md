@@ -1,0 +1,29 @@
+
+
+# The Western Heritage
+
+## ***Chapter 0 : What Is The Western Heritage?***
+
+The western heritage emerges from an evolved and evolving story of human actions and interactions, peaceful and violent, that arose in the eastern Mediterranean, then spread across the western Mediterranean into northern Europe, and eventually to the American continents, and in their broadest impact, to the peoples of Africa and Asia as well.
+
+The Western Heritage as a distinct portion of world history descends from the ancient Greeks, who saw their own political life based on open discussion of law and policy. The Greeks invented the concept of **citizenship**, defining it as **engagement in some form of self-government**.  The Greeks also established their conviction that **reason can shape and analyze physical nature, politics,  and morality**.
+
+Rome spread its authority through military conquest across the Mediterranean world,  embracing Greek literature and philosophy. Romans' conquest and imposition of law created the Western world as a vast empire stretching from Egypt and Syria in the east to Britain in the West. Although the Roman Republic, governed by Senate and popular political institutions (元老院与公众政治机构), gave way to the autocratic rule of Roman Empire, **the idea of a free republic law and constitutional** (宪法的) **arrangements limiting political authority survived centuries of arbitrary** (武断专制的、随心所欲的) **rule by emperors**. 
+
+Emperor Constantine reorganized the Roman Empire in two fundamental ways: First, he moved the capital from Rome to Constantinople. Thereafter (其后) large portions of the Western empire became subject to the rulers of Germanic tribes. In the confusion of these times, **most of the texts embodying ancient philosophy, literature, and history became lost** in the West, and for centuries Western Europeans became **intellectually severed** from that ancient heritage. Second, Constantine's recognition of Christianity as the official religion of the empire. 
+
+康斯坦丁将基督教作为帝国的官方宗教，由于基督教是单神论宗教，康斯坦丁对基督教的接纳导致了异端多神论宗教的消亡。此后，西方世界或多或少的都有与基督教相连，或者与承认罗马主教为首基督教会相连。
+
+随着皇权逐渐崩溃，主教变成了西欧许多区域的事实上的统治者，但是基督教会从未在未与世俗的统治者协商或者冲突的情况下加以统治，并且宗教法也没有取代世俗法，况且世俗的统治者也无法在忽略教会的影响下加以统治。Hence, from the fourth century C.E. to the present day, **rival claims to political and moral authority between ecclesiastical and political officials have characterized the west**.
+
+In the seventh century, the rise of Islam, a new monotheistic religion, which spread rapidly through conquests across North Africa and eventually into Spain, confronted a new challenge to the Western World. Christians attempted to reclaim the Holy Land (圣地，亦即巴勒斯坦) from Muslim control in church-inspired military crusades (十字军东征) that still resonate negatively in the Islamic world.
+
+However, while intellectual life languished in the West, **most of the texts of ancient Greek and Latin learning survived and were studied in the Muslim world**. By the fourteenth century, European thinkers redefined themselves and their intellectual ambitions by recovering the literature and science from the ancient world, reuniting Europe with its Graeco-Roman past.
+
+From the twelfth through the eighteenth centuries, a new European political system arose based on centralized monarchies (中央集权的君主制) characterized by large armies, navies and bureaucracies loyal to the monarch (忠诚于皇帝的官僚体制), and by the capacity to raise revenues (提升税收).  **Most of these monarchies recognized both the political role of local or national assemblies drawn from the propertied elites** (有产阶级精英) **and the binding power of constitutional law on themselves. ** (宪法对于他们自己的约束力) ***The monarchies, their military, and their expanding commercial economies became the basis for the extension of European and Western influence around the globe.*** 
+
+In the late fifteenth and early sixteenth centuries, two transforming events occurred. The first was the **European discovery and the conquest of American continents**, thus opening the Americas to Western institutions, religion, and economic exploitation. The labor shortage of Americas led to the forced migration of millions of Africans as slaves to the America. ***By the mid-seventeenth century the West consequently embraced the entire transatlantic world and its multiracial societies***. 
+
+Second, shortly after the American encounter, a **religious schism erupted within Latin Christianity**. (基督教分裂) Reformers rejecting both many medieval Christian doctrines as unbiblical and the primacy of the Pope in Rome established Protestant churches across much of northern Europe. (宗教改革者不仅反对许多中世纪的基督教义，认为它们是不符合圣经的，还反对罗马天主教教皇的至高无上的地位，并且在北欧的大部分土地上建立了新教教堂) As a consequence, for almost two centuries **religious warfare between Protestants and Roman Catholics overwhelmed the continent as monarchies chose to defend one side or the other.** The religious turmoil meant that Europeans who conquered and settled the Americans carried with them *particularly energized religious convictions*, with **Roman Catholics dominating Latin America and English Protestants most of North America. **
+
+By the late eighteenth century, the idea if the West denoted a culture increasingly dominated by two new forces. First, **science** arising from a new understanding of nature achieved during the sixteenth and seventeenth centuries persuaded growing numbers of the educated elite that ***human beings can rationally master nature for ever-expanding productive purposes improving the health and well-being of humankind.*** From this era to the present, the West has been associated with advances in technology, medicine, and scientific research. Second, during the eighteenth century, a drive for economy improvement that vastly increased agricultural production and then industrial manufacturing transformed
